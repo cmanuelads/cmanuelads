@@ -15,4 +15,4 @@
 
 ### 📫 Vamos nos conectar?
 
-* Conecte-se comigo no LinkedIn(https://www.linkedin.com/in/claudia-manuela-duarte-b21206230/) ou confira meus repositórios logo abaixo nesta página! 🚀
+* Conecte-se comigo no LinkedIn (https://www.linkedin.com/in/claudia-manuela-duarte-b21206230/) ou confira meus repositórios logo abaixo nesta página! 🚀
